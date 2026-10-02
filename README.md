@@ -8,6 +8,8 @@ For more than seven years I've built the websites, apps, servers and ad campaign
 
 [Portfolio](https://smtaqimz.com) · [Case studies](https://smtaqimz.com/work) · [hello@smtaqimz.com](mailto:hello@smtaqimz.com) · [LinkedIn](https://www.linkedin.com/in/smtaqimz/)
 
+**Google-certified:** [Project Management](https://coursera.org/verify/professional-cert/3NAFMW3B6HSP) and [IT Support](https://coursera.org/verify/professional-cert/A22TV3QUWM7N) Professional Certificates, plus 14 Google courses on Coursera, all verifiable.
+
 ### By the numbers
 
 | **£5M+** | **400+** | **390,561** | **20+** | **5.0 ★** |
